@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @InsideOutzz
 - 👀 I’m interested in making code. Duh
 - 🌱 I’m currently learning HTML,CSS and JS
-- 💞️ I’m looking to collaborate with none really
-- 📫 How to reach me: dont
+- 💞️ I’m looking to collaborate with none of yo asses
+- 📫 How to reach me: don't
 - 😄 Pronouns: Walmart Bag
-- ⚡ Fun fact: nobody cares about yo 8-year old coding skills
+- ⚡ Fun fact: nobody cares about yo ass
 
 <!---
 InsideOutzz/InsideOutzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
