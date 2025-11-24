@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with none of yo asses
 - 📫 How to reach me: don't
 - 😄 Pronouns: Walmart Bag
-- ⚡ Fun fact: I hope you die in a dumpster fire.
+- ⚡ Fun fact: I play many games!
 
 <!---
 InsideOutzz/InsideOutzz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
