@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @InsideOutzz
 - 👀 I’m interested in making code. Duh
-- 🌱 I’m currently learning HTML,CSS and JS
+- 🌱 I’m currently learning PHP
 - 💞️ I’m looking to collaborate with none of yo asses
 - 📫 How to reach me: don't
 - 😄 Pronouns: Walmart Bag
